@@ -29,6 +29,7 @@
 - [screen](http://i.imgur.com/yZkdljI.png) - Simone Nettì con un blog dall'immenso ritardo e annesso whine sull'mmr e i russi.
 - [video](https://www.youtube.com/watch?v=CpSxp9QpMi4) - Roberto Sfameni, in arte Bobroberto, con una videoguida su come fare 955 gpm (gold per minuto) su sniper. Warning: alto contenuto di cromosomi
 - [screen](http://imgur.com/a/odXNR) - Francesco Ceron - AKA IL GRANDE ADMIN - paragona gli Ad Finem di inizio 2017 con i team Itas, dimostrando il motivo per cui è lui il capo.
+- [screen](http://imgur.com/a/wuEhx) - Kartigha Daniela ci dimostra come la build con i talismani ti faccia schivare gli attacchi magici
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
