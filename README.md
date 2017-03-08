@@ -36,6 +36,7 @@
 - [screen](http://i.imgur.com/bDSFdlk.png) - Leonardo Del Buono, sul pezzo come sopra, ma leggermente in ritardo. Complimentoni.
 - [screen](http://i.imgur.com/3tEXMZP.png) - Alex Martielli, molto utile alla discussione su Dota2
 - [screen](http://i.imgur.com/BKumDvJ.png) - Roberto Crosignani, se non sei noob, ari
+- [screen](http://imgur.com/a/gJj7A) - Ranjeev Pauluzzi, a mmr basso gli asini volano e anche i cromosomi
 
 ### Blog
 - [screen](http://i.imgur.com/CAEgubJ.png) - Andrea Elle
