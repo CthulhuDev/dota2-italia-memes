@@ -30,6 +30,7 @@
 - [video](https://www.youtube.com/watch?v=CpSxp9QpMi4) - Roberto Sfameni, in arte Bobroberto, con una videoguida su come fare 955 gpm (gold per minuto) su sniper. Warning: alto contenuto di cromosomi
 - [screen](http://imgur.com/a/odXNR) - Francesco Ceron - AKA IL GRANDE ADMIN - paragona gli Ad Finem di inizio 2017 con i team Itas, dimostrando il motivo per cui è lui il capo.
 - [screen](http://imgur.com/a/wuEhx) - Kartigha Daniela ci dimostra come la build con i talismani ti faccia schivare gli attacchi magici
+- [screen1](http://imgur.com/a/kY0aE) - [screen2](http://imgur.com/a/9QGpL) - Wombo combo di Marco Grassano e Francesco Shaholli che pretendono di essere aiutati, ma alla luce di un dubbio legittimo triggerano e parte il ragionamento tardo con insulti gratuiti
 
 ### High Quality Posts
 - [screen](http://i.imgur.com/t6ZHN6u.png) - Davide Capruzzi, sul pezzo; da League of Legends
