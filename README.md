@@ -45,6 +45,7 @@
 - [screen](http://i.imgur.com/LNzhfqR.png) - Alberto Valle
 - [screen](http://i.imgur.com/v5cycJ6.png) - Marco Verrastro, osceno oltre che sessista
 - [screen](http://i.imgur.com/qCYlezA.png) - Claudio Dalfino, grande blog! Freschissimo!
+- [screen](http://i.imgur.com/Sq1oKXp.png) - Ivan Pintado, vinci una perdi una!
 
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
