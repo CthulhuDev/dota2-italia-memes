@@ -39,6 +39,7 @@
 - [screen](http://i.imgur.com/BKumDvJ.png) - Roberto Crosignani, se non sei noob, ari
 - [screen](http://imgur.com/a/gJj7A) - Ranjeev Pauluzzi, a mmr basso gli asini volano e anche i cromosomi
 - [screen](http://i.imgur.com/aqgTZ7b.png) - Jaquel Hagar, filosofia
+- [screen](http://imgur.com/a/5j0mH) - Mattia Cernelli, sempre al top
 
 ### Blog
 - [screen](http://i.imgur.com/CAEgubJ.png) - Andrea Elle
