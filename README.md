@@ -42,6 +42,7 @@
 - [screen](http://i.imgur.com/aqgTZ7b.png) - Jaquel Hagar, filosofia
 - [screen](http://imgur.com/a/5j0mH) - Mattia Cernelli, sempre al top
 - [screen](http://imgur.com/a/nz4C8) - Andrea Cantagalli, il miglior theorycrafter dal 1989
+- [screen](http://imgur.com/a/UwKTh) - Mattia Cernelli, ottimo meme campione!
 
 ### Blog
 - [screen](http://i.imgur.com/CAEgubJ.png) - Andrea Elle
