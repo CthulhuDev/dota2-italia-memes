@@ -52,6 +52,7 @@
 
 ### Offese Gratuite
 - [screen](http://i.imgur.com/qmx64KO.png) - Tommaso Cei
+- [screen](http://i.imgur.com/pV4Bg9e.png) - Francesco Ceron sempre un passo avanti
 
 ### Tasto "PrintScreen"
 - [screen](http://i.imgur.com/WCdvLhJ.png) - Marco Paletta Trane
